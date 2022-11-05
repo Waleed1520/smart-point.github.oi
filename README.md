@@ -1,1 +1,0 @@
-# smart-point.github.oi
